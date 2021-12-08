@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AstroMan69
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: if you try hard enough, you'll be able to grab my arm.
